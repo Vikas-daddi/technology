@@ -1,1 +1,1 @@
-# TECHNO
+# TECH
